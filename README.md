@@ -55,4 +55,4 @@ Submit a **short report (2–3 pages)** covering the following topics:
 
 ---
 
-📌 **Deadline:** 23rd September
+📌 **Deadline:** 23rd September 11:59 pm
